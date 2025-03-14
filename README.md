@@ -4,10 +4,7 @@
   </p>
 
 
+<p align="center">luck bot is better for you </p> font=black+size=1000>
 
-<a href="
-<a href="https://whatsapp.com/channel/0029Vb3L1Zt1iUxQKTgNVt2i">
- <img alt="𝕃𝕌ℂ𝕂 𝕄𝔻" height="500" src="https://files.catbox.moe/ihybe5.jpg">
- 
-<p align="center">luck whatsapp bot is sure for the use </p>
+
 
