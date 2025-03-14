@@ -7,6 +7,6 @@
 
 <a href="https://whatsapp.com/channel/0029VaihcQv84Om8LP59fO3f">
  <img alt="𝕃𝕌ℂ𝕂 𝕄𝔻" height="500" src="https://files.catbox.moe/ihybe5.jpg">
+ 
+<p align="center">luck whatsapp bot is sure for the use </p>
 
-h1> 
-<p align="center">ɪ ɪɴᴛʀᴏᴅᴜᴄᴇ <b>𝕃𝕌ℂ𝕂𝕐 𝕄𝔻</b>, ᴀ ᴘᴏᴡᴇʀғᴜʟ sɪᴍᴘʟᴇ ᴡᴀᴛsᴀᴘᴘ ʙᴏᴛ </p>
