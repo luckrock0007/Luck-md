@@ -4,7 +4,7 @@
   </p>
 
 
-<p align="center">luck bot is better for you </p> font=black+size=1000>
+<p align="center">luck bot is better for you <
 
 
 
